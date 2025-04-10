@@ -1,0 +1,1 @@
+# Dijital-kiz-Tabanl-Jet-Motoru-Ar-za-Tespiti-ve-m-r-Tahmini
